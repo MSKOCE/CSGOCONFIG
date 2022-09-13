@@ -1,0 +1,2 @@
+# CSGOCONFIG
+CSGO-c8qzk-aQO9L-GzFNy-fN4eV-9YkXM
